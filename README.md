@@ -9,5 +9,6 @@
 ₊₂₇₆₃₃₃₆₅₇₇₄
 
 
-![𝕞𝕒𝕕𝕒𝕝𝕚𝕟_𝕛𝕒𝕕𝕖 💖 lil peep](https://github.com/user-attachments/assets/afef7871-5a8f-4859-8d52-5733b8de04a8)
+! https://github.com/user-attachments/assets/29b0344f-ab4e-45cc-8117-99e380d0bacb)
+
 
